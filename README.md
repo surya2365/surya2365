@@ -12,9 +12,9 @@
 
 - 👯Few other Projects [Recent Projects](https://github.com/surya2365/Predictive-Modelling)
 
-- 🤝 Happy to collaborate **Front end or Data Science projects**
+- 🤝 Happy to collaborate for **Front end or Data Science projects**
 
-- 👨‍💻 All of my projects are available at [https://github.com/surya2365](https://github.com/surya2365)
+- 👨‍💻 All my projects are available at [https://github.com/surya2365](https://github.com/surya2365)
 
 - 💬 Ask me about **Python, Machine Learning, React, Power BI**
 
