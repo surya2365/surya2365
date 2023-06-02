@@ -20,7 +20,7 @@
 
 - 📫 How to reach me **gorthisuryakiran@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-a5QTpypKuU8aBXnWMCSNF3gUAStFBDK/view?usp=share_link](https://drive.google.com/file/d/1-a5QTpypKuU8aBXnWMCSNF3gUAStFBDK/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1zahHYtalYRBuVDPXXmkhkQIGTSySGq1h/view?usp=drive_link](https://drive.google.com/file/d/1zahHYtalYRBuVDPXXmkhkQIGTSySGq1h/view?usp=drive_link)
 
 - ⚡ Fun fact **I have a contagious laugh**
 
